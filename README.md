@@ -1,4 +1,4 @@
-# FREE SCRILT
+# FREE SCRIPT
 # Sup 32/64 bit❤️🎉
 # TUTORIAL INSTALL SC
 Download apk Termuxnya disini biar ngga eror🌟
